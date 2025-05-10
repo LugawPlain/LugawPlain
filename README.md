@@ -1,7 +1,6 @@
 # 💫 About Me:
 🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
 
-![301e6aab5966cf3c5a288586a2b7b909 (1)](https://github.com/user-attachments/assets/af5275d3-f2e4-470b-825d-a2635b9974be)
 
 
 
