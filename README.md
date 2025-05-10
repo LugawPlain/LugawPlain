@@ -4,10 +4,7 @@
 
 
 
-![Uploading 301e6aab5966cf3c5a288586a2b7b909 (5).gif…]()
-
-
-
+![301e6aab5966cf3c5a288586a2b7b909 (5)](https://github.com/user-attachments/assets/3acdc4d8-b2f7-4acc-ac24-4de5ca7053a4)
 
 
 ## 🌐 Socials:
